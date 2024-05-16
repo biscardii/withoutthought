@@ -1,2 +1,2 @@
 # withoutthought
-mindless pieces of inspo captured in moments in time
+mindless pieces of inspo captured in moments of time
